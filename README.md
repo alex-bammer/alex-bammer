@@ -1,4 +1,4 @@
-👋 Hi, I’m Alex Mironenko from DataArt, @alex-bammer
+👋 Hi, I’m Alex, @alex-bammer
 
 
 - 👀 I’m interested in
